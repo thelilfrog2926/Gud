@@ -106,3 +106,4 @@ https://loop-graduated-pierre-modify.trycloudflare.com/
 https://neal.fun
 https://mathiscool.global.ssl.fastly.net/
 https://voidnetworkisthebest.global.ssl.fastly.net/
+https://xela.foramax2.ru
