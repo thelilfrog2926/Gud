@@ -104,4 +104,4 @@ https://monkeunblocker.com
 https://mechanics-fashion-anti-commissioners.trycloudflare.com/
 https://loop-graduated-pierre-modify.trycloudflare.com/
 https://neal.fun
-https://analystinn.net
+https://mathiscool.global.ssl.fastly.net/
