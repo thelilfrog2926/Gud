@@ -109,3 +109,4 @@ https://voidnetworkisthebest.global.ssl.fastly.net/
 https://xela.foramax2.ru
 https://htmlgw3.apponfly.comrdp/#/client/QXBwT25GbHkAYwBSZXN0QXV0aFByb3ZpZGVy
 https://music.youtube.com
+https://discord.gg/hFZC5cgsmq
