@@ -112,3 +112,4 @@ https://music.youtube.com
 https://discord.gg/hFZC5cgsmq
 https://discord.lightgo.app/
 https://cxzxcnai.28n3u8fhs81hyf.thdev.me/
+https://discord.gointospace.app/
