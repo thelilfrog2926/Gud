@@ -113,3 +113,13 @@ https://discord.gg/hFZC5cgsmq
 https://discord.lightgo.app/
 https://cxzxcnai.28n3u8fhs81hyf.thdev.me/
 https://discord.gointospace.app/
+https://biney.imissu.com/
+https://trinity-killer.risj.com.br/
+https://hey-little-brother.miss-me.saboia.me/
+https://i-wonder-if-rita-is-looking-at-the-same-moon-at-the-same-moment.webs.vc/
+https://biney-moser.ipse.ro/
+https://hello.dexter-morgan.kak.si/
+https://hello-arthur-mitchell.xinit.se/
+https://jesus-christ-morgan-your-the-bay-harbour-butcher.pwm.hu/
+https://you-seperated-me-and-dexter-so-now-im-gonna-seperate-you.010.is/
+https://tonights-the-night.earsea.com/
