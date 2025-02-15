@@ -126,3 +126,11 @@ https://tonights-the-night.earsea.com/
 https://heliohost.com
 https://settings.info.abatek.com
 https://outlook.com
+https://abcya.districtlearning.org/
+https://kahooteducation.districtlearning.org/
+https://moreedu.districtlearning.org/
+https://googleschool.districtlearning.org/
+https://classroomactivities.flage.site/
+https://learninghtml.flage.site/
+https://pythoncode.flage.site/
+https://camolearning.flage.site/ 
