@@ -123,4 +123,4 @@ https://hello-arthur-mitchell.xinit.se/
 https://jesus-christ-morgan-your-the-bay-harbour-butcher.pwm.hu/
 https://you-seperated-me-and-dexter-so-now-im-gonna-seperate-you.010.is/
 https://tonights-the-night.earsea.com/
-https://duckdns.org
+https://eu.org
