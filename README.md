@@ -136,3 +136,4 @@ https://pythoncode.flage.site/
 https://camolearning.flage.site/ 
 https://
 https://vaporsite.global.ssl.fastly.net/
+https://discord.gg
