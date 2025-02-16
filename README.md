@@ -134,6 +134,6 @@ https://classroomactivities.flage.site/
 https://learninghtml.flage.site/
 https://pythoncode.flage.site/
 https://camolearning.flage.site/ 
-https://
+https://browser.lol
 https://vaporsite.global.ssl.fastly.net/
 https://discord.gg
