@@ -137,3 +137,4 @@ https://camolearning.flage.site/
 https://browser.lol
 https://vaporsite.global.ssl.fastly.net/
 https://discord.gg
+https://playervpn.github.io/
