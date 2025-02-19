@@ -138,3 +138,4 @@ https://browser.lol
 https://vaporsite.global.ssl.fastly.net/
 https://discord.gg
 https://playervpn.github.io/
+https://music.youtube.com
