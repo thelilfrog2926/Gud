@@ -142,3 +142,4 @@ https://music.youtube.com
 https://microsoft.com
 https://xenapsis.dev/
 https://playhop.com/
+https://images.google.fr/
