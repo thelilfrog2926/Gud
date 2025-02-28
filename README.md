@@ -143,3 +143,4 @@ https://microsoft.com
 https://xenapsis.dev/
 https://playhop.com/
 https://google.fr/
+https://mail.google.fr
