@@ -141,3 +141,4 @@ https://playervpn.github.io/
 https://music.youtube.com
 https://microsoft.com
 https://xenapsis.dev/
+https://playhop.com/
