@@ -145,4 +145,4 @@ https://playhop.com/
 https://google.fr/
 https://mail.google.fr
 https://chstextbook.github.io/
-https://holyunblocker.net
+https://holyunblocker.com
