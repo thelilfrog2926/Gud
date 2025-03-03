@@ -142,7 +142,7 @@ https://music.youtube.com
 https://microsoft.com
 https://xenapsis.dev/
 https://playhop.com/
-https://google.fr/
+
 https://mail.google.fr
 https://chstextbook.github.io/
 https://holyunblocker.com
@@ -156,3 +156,4 @@ https://Evo-F4.io
 https://EvoF3.io
 https://EvoF4.io
 https://outlook.com
+- [Google](https://google.fr/)
