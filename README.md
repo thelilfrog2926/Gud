@@ -173,7 +173,7 @@ https://bum.education
 https://gas.education
 https://eaglercraft.com
 https://nana.utopia.ostrovsky.sk
-https://
+https://teacher4biology.fit/?docs.google.com
 https://
 https://
 https://
