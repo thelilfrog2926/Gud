@@ -176,7 +176,7 @@ https://gas.education
 https://eaglercraft.com
 https://nana.utopia.ostrovsky.sk
 https://teacher4biology.fit/?docs.google.com
-https://
+https://netlify.app
 https://
 https://
 https://
