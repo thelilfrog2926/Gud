@@ -179,7 +179,7 @@ https://teacher4biology.fit/?docs.google.com
 https://netlify.app
 https://aniwatchtv.to
 https://fakeoakleysunglassessale.com
-https://
+https://discord.gg/fernproxy
 https://
 https://
 https://
