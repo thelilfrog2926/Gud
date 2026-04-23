@@ -1,4 +1,5 @@
 # Links
+https://crunchyroll.com
 https://neal.fun
 [https://now.gg]
 [https://spotify.com]
